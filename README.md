@@ -1,0 +1,1 @@
+# hermes-termux-guide-via-free-API-novAI-account-
